@@ -20,3 +20,6 @@ I write, erase, rewrite
 Erase again, and then
 
 A poppy blooms.
+
+##################################
+This is a new form.
