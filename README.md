@@ -13,6 +13,7 @@ And within every dewdrop
 A world of struggle.
 
 
+
 “A Poppy Blooms” by Katsushika Hokusai
 
 I write, erase, rewrite
@@ -23,3 +24,11 @@ A poppy blooms.
 
 ##################################
 This is a new form.
+
+
+“In a Station of the Metro” by Ezra Pound
+
+The apparition of these faces in the crowd;
+
+Petals on a wet, black bough.
+
