@@ -11,3 +11,12 @@ A world of dew,
 And within every dewdrop
 
 A world of struggle.
+
+
+“A Poppy Blooms” by Katsushika Hokusai
+
+I write, erase, rewrite
+
+Erase again, and then
+
+A poppy blooms.
