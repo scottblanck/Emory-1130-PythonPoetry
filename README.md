@@ -11,3 +11,10 @@ A world of dew,
 And within every dewdrop
 
 A world of struggle.
+
+
+“In a Station of the Metro” by Ezra Pound
+
+The apparition of these faces in the crowd;
+
+Petals on a wet, black bough.
