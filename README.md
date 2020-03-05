@@ -32,3 +32,18 @@ The apparition of these faces in the crowd;
 
 Petals on a wet, black bough.
 
+
+
+
+Final Poem for Thursday
+
+Sonia Sanchez “Haiku [for you]”
+
+love between us is
+
+speech and breath. loving you is
+
+a long river running.
+
+The End
+
